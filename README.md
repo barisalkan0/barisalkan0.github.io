@@ -1,1 +1,0 @@
-# barisalkan0.github.io
